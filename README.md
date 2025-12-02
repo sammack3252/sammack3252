@@ -1,4 +1,4 @@
-# Sam (any pronouns ig idk im going through smth)
+# Sam (she/her)
 I like kitties 🐈‍⬛ and sheep 🐑, the two best animals to exist.
 I like rhythm games and cute stuff :3.
 
